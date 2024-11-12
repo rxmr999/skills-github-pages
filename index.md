@@ -8,8 +8,6 @@
 - Feel free to bring any of your own. 
 
 - I'll have a TV with football on, and probably some chili or something to eat too.
-  
-- Kids are welcome. Thomas has somewhere to be but Elena will be here.
 
 - Please invite anyone you like as long as they expect nothing more than some beer. This is not fancy.
 
