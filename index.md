@@ -13,5 +13,6 @@
 
 **1716 Ridgeway Drive**
 
-**No RSVP needed. Show up when and if you like**
+**No RSVP needed. Show up when and if you like.**
+
 
