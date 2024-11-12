@@ -1,7 +1,9 @@
 
 # 🍻 **Strong Beer Tasting - This Saturday -  11/16 - 2PM** 🍻
 
-- I have a lot of strong beers, like barrel-aged stouts, barley wines, and quads, that should be consumed.
+- I have a lot of strong beers, like barrel-aged stouts, barley wines, and quads
+  
+- They must be consumed.
   
 - Beers like this are made to share, so come sit outside and sip some beers.
 
