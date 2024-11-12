@@ -14,5 +14,6 @@
 **1716 Ridgeway Drive**
 
 **No RSVP needed. Show up when and if you like.**
+![beer](beer.jpg)
 
 
