@@ -11,7 +11,7 @@
   
 - Kids are welcome. Thomas has somewhere to be but Elena will be here.
 
-- Please invite anyone you like. This is not fancy.
+- Please invite anyone you like as long as they expect nothing more than some beer. This is not fancy.
 
 **1716 Ridgeway Drive**
 
