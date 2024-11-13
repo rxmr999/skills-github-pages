@@ -12,6 +12,8 @@
 - I'll have a TV with football on, and probably some chili or something to eat too.
 
 - Please invite anyone you like as long as they expect nothing more than some beer. This is not fancy.
+  
+- Families welcome. Anyone welcome.
 
 **1716 Ridgeway Drive**
 
