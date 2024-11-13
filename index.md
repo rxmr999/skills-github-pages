@@ -7,7 +7,7 @@
   
 - Beers like this are made to share, so come sit outside and sip some beers.
 
-- Feel free to bring any of your own. 
+- Feel free to bring any of your own. Or don't. 
 
 - I'll have a TV with football on, and probably some chili or something to eat too.
 
