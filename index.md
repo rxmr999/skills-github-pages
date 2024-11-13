@@ -13,7 +13,7 @@
 
 - Please invite anyone you like as long as they expect nothing more than some beer. This is not fancy.
   
-- Families welcome. Anyone welcome.
+- Families welcome. Anyone welcome. Apologies for the lack of diversity in the drawing. Blame DALLE.
 
 **1716 Ridgeway Drive**
 
