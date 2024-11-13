@@ -5,7 +5,7 @@
   
 - They should be consumed. Drinking outside is best.
   
-- Beers like this are made to share, so come sit outside and sip some beers.
+- Beers like this are made to share, so come sit outside and sample some strong beers.
 
 - Feel free to bring any of your own. Or don't. 
 
